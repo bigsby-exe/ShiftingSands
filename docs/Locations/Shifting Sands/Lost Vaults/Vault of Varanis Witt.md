@@ -31,7 +31,7 @@ human man watching over city
 | 2 | trial of resilience |
 | 3 | trial of spirit |
 
-#### trial of valler
+#### trial of vealer
 grand library. big fight. lot sneks
 
 books about religions figures 
@@ -73,9 +73,6 @@ Some blade traps where dodged by [[Miek]] with ease
 
 In the tomb we found a syren in a cage and a miic that attacked Miek 
 
-astmr 
-
-mastr 
 
 chests are opens S T A R and opening the last one gave a pentagon key 
 
