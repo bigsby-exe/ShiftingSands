@@ -1,0 +1,1 @@
+The golden scab beetle was the key used to access the [[Vault of Ishanna Ophi]]
