@@ -1,11 +1,11 @@
-site_name: obsidian-mkdocs template
+site_name: Shifting Sands of Alm
 
 theme:
     name: 'material'
     palette:
 
     # Light mode
-    - media: "(prefers-color-scheme: light)"
+    - media: "(prefers-color-scheme: dark)"
       scheme: default
       primary: pink
       accent: indigo
@@ -16,7 +16,7 @@ theme:
     # Dark mode
     - media: "(prefers-color-scheme: dark)"
       scheme: slate
-      primary: pink
+      primary: red
       accent: blue
       toggle:
         icon: material/toggle-switch
