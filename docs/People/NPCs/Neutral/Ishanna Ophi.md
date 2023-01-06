@@ -1,0 +1,1 @@
+Ishanna is one of [[The Timeless Ones]] she assigned [[The Watcher]] 

@@ -1,0 +1,1 @@
+The challenge from [[Karkera]] was given to us in the [[Vault of Varanis Witt]] and in a cell within this challenge we found [[Oswaldo]] a little monkey man

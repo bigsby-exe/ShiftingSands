@@ -1,0 +1,1 @@
+Works at the [[Purple Cap]] selling magic items with his aunt [[Katya]]

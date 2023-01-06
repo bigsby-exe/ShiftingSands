@@ -1,0 +1,1 @@
+Runs and owns the [[Purple Cap]] selling magic items 

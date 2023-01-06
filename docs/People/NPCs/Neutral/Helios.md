@@ -1,0 +1,1 @@
+A grand mage who created [[Karkera]]
