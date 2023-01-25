@@ -1,0 +1,1 @@
+The south bridge in [[Beszo]] over the [[River Mezzei]]

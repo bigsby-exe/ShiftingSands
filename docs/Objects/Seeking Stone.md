@@ -6,3 +6,5 @@ Any creature with a Seeking Stone in their possession can magically sense the cu
 Created by [[Rithra Iscalion]] Magister of Beszo to aid adventurers in locating the lost vaults created by The Timeless Ones, a group of ageless mages that once ruled the desert province of Alm.
 
 Currently being held by [[Grenvalk]] to locate the [[Vault of Varanis Witt]]
+
+Pretty sure Grenvalk threw it at a snake or some shit
