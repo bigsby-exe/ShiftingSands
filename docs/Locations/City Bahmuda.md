@@ -1,1 +1,1 @@
-The City of Bahmuda is a fictitious place that [[Grenvalk]] made up to be the location of the [[Grand College of the Grand Turquoise]]
+The City of Bahmuda is a fictitious place that [[People/Party/Grenvalk]] made up to be the location of the [[Grand College of the Grand Turquoise]]

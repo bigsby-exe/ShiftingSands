@@ -5,7 +5,7 @@ We enter a large chamber with 5 people sat at a large desk
 Rifra tells us about a group of arch mages who have hidden keys for vaults 
 
 ## People
-Teefling man - Receptionist 
+[[Inquery]] Teefling man - Receptionist intreague 43th day of the 6th moon
 [[Rithra Iscalion]]
 human woman - PA to Rifra
 

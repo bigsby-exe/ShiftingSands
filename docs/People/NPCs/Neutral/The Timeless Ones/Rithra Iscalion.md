@@ -6,10 +6,10 @@ ___
 - one of her eyes is made of sand and drips sand 
 
 ## Helped 
-[[Grenvalk]] paid Rithra to assist [[Larkum]] in staying in a tavern and getting back home safely 
+[[People/Party/Grenvalk]] paid Rithra to assist [[Larkum]] in staying in a tavern and getting back home safely 
 
 ## Staff
-- [[Rithra's Receptionist]]
+- [[People/NPCs/Allies/Inquery]]
 - [[Rithra's PA]]
 
 

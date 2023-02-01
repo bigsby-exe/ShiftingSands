@@ -15,3 +15,10 @@ From the note we headed to the [[Thirsty Camel]] here we met [[Gorag]] who sent 
 
 We went to the wonderous bazar and had a look around. Grenvalk asked the bar tender about the home of the drunken elements.
 They pointed us to the Drunken Afriti who are ran by an elemental 
+
+In the drunken Afridi we met [[Sands]] who we had to beat in a drinking contest (or just lie to him a bit) and he gave us the last note pointing us to the roof of the library 
+
+After this we headed to the [[Star Bridge]] & [[Sun Bridge]] to collect 2 parts of a note, stealing some guards keys in the process.
+On the bridge we met [[Grenvalk 2nd]] who pointed us to the library, we headed there.
+
+We spoke with [[Inquery]] and went to the top floor to find the scrolls section where we met [[Prof Wilba Wibble]] who sent us to the 

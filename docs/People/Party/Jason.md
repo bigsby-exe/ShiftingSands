@@ -1,1 +1,1 @@
-Jason ins the pseudonym of [[Miek]] when in [[Grenvalk]] form 
+Jason ins the pseudonym of [[Miek]] when in [[People/Party/Grenvalk]] form 

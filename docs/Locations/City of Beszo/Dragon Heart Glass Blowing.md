@@ -1,0 +1,1 @@
+Dragon Heart Glass Blowing is a glass works shop in [[Beszo]] we went here on the quest of the [[Mysterious note]] 
