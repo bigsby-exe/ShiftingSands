@@ -1,0 +1,1 @@
+Bingi are a race of people from [[TobaxVegas]] the enemy of the Tobaxi 

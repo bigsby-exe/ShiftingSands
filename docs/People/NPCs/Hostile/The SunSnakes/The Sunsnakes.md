@@ -9,7 +9,7 @@ Sunsnakes are a group of ass holes on the same quest as us
 | [[Derg]] | Half-ork man | 
 | [[Cafena Steelcoat]]| Female Dwarf  |
 |[[Sana Dasalore]]| Elf lady | 
-|[[Unknown Mercenary]]| Unknown creature in cloth |
+|[[Bingus]]| Unknown creature in cloth |
 
 On our way back into town the Sunsnakes attacked us for some reason.
 

@@ -5,7 +5,11 @@ The Obelisks where originally created by the [[Fahl]] who used them to hide the 
 
 The party has currently destroyed the obelisk in both the [[Vault of Varanis Witt]] & [[Vault of Ishanna Ophi]] and are now heading to do the same in the [[Vault of Ataish]]
 
+## Side Quests
+1. [[Mysterious note]]
+
 ## The party 
+
 | Name | Current Character | Former Character(s) |
 | :----: | :-----: | :-------------------------: |
 | Truff | | [[Maelstrom]]
@@ -13,7 +17,7 @@ The party has currently destroyed the obelisk in both the [[Vault of Varanis Wit
 | Slowmax | [[Miek]] |
 | Alex | [[Tanwen]] | [[Jex-Goral]]
 | Andy | [[Roman Eagletree]]|
-| Dave | [[Toriggs]]|
+| Dave | |[[Toriggs]]
 
 
 
