@@ -1,0 +1,1 @@
+Out in [[The Sands]] we came across the Elysium a large marble stronghold in the sand

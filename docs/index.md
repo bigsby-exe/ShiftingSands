@@ -17,7 +17,7 @@ The party has currently destroyed the obelisk in both the [[Vault of Varanis Wit
 | Slowmax | [[Miek]] |
 | Alex | [[Tanwen]] | [[Jex-Goral]]
 | Andy | [[Roman Eagletree]]|
-| Dave | |[[Toriggs]]
+| Dave | [[Eugene Stormwindler]] |[[Toriggs]]
 
 
 
