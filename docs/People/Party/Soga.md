@@ -1,0 +1,1 @@
+Soga is the pseudonym of [[Gosha]]
