@@ -1,1 +1,1 @@
-Thomas McJeferTony is a pseudonym for [[Grenvalk]]
+Thomas McJeferTony is a pseudonym for [[Grenvalk]] and a member of [[The Save Snakes]]
