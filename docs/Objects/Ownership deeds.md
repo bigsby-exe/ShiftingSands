@@ -1,0 +1,1 @@
+The ownership deeds to [[Red Sands Inc]], [[Wonderus Bazzarr]] & [[Thirsty Camel]] kept on the person of [[Grenvalk]]

@@ -1,0 +1,1 @@
+Cinder is a fire genie who trapped [[Igniss]]
