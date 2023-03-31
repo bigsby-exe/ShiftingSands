@@ -1,0 +1,1 @@
+[[Khepri]] was a high priestess of the [[Fahl]] and her tomb was found out in [[The Sands]]

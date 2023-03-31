@@ -1,0 +1,1 @@
+A single brass key is the key to [[Vault of Rithra Iscalion]]

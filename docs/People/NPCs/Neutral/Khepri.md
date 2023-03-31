@@ -1,0 +1,1 @@
+Khepri (50-95) is the priestess of the [[Fahl]] we found her tomb our in the sands ([[Toumb of Khepri]])
