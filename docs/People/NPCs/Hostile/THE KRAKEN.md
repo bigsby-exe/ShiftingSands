@@ -1,0 +1,1 @@
+THE KRAKEN was a sand monster we found in [[The Sands]] while hanging out with [[The Sci Bros]]
