@@ -1,0 +1,1 @@
+sseth is a winged serpent of the uantay who was summoned by [[Ihieslah]]

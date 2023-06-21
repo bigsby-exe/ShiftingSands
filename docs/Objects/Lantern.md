@@ -1,0 +1,1 @@
+Lanterns where used in the summoning ritual for [[Sseth]]
