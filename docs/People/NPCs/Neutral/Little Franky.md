@@ -1,0 +1,1 @@
+Little Franky ~~is~~ a friend of [[Oswaldo]] and was killed in [[Karkera's Challenge]]

@@ -1,2 +1,4 @@
 [[Gosha]] is from TobaxVegas where the Bingai are the enemy of Tobaxi.
 We met a Bingi known as [[Bingus]]
+
+> TobaxVegas, a whimsical haven inspired by the glitz and glamour of Las Vegas, is a feline paradise where cats reign supreme. This extraordinary destination offers a unique blend of entertainment, luxury, and extravagance tailored exclusively for our beloved feline friends. From the dazzling catnip-infused casinos to the purrfectly designed lounges and spas, TobaxVegas ensures a meow-nificent experience filled with high-stakes games, world-class cat shows, and opulent accommodations that cater to every pampered whisker. With its feline-centric attractions and unparalleled hospitality, TobaxVegas is the ultimate playground for cats seeking an unforgettable and utterly delightful escapade.

@@ -2,6 +2,7 @@ ___
 The Timeless Ones, a group of ageless mages that once ruled the desert province of Alm.
 
 Current timeless members we know of:
+
 | No | Name | Comments | Vault |
 | --- | ------- |------------- | ----- |
 | 1 | [[Rithra Iscalion]] | Ol' Sand Eyes | [[Vault of Rithra Iscalion]]|
