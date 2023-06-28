@@ -1,0 +1,1 @@
+The artifact is an item that will "prove" the destruction of the [[Vault of Rithra Iscalion]] and be utilised in [[The Plan]]

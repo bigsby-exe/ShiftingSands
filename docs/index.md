@@ -8,6 +8,7 @@ The party has currently destroyed the obelisk in both the [[Vault of Varanis Wit
 ## Side Quests
 1. [[Mysterious note]]
 2. [[The Save Snakes]]
+3. [[The Plan]]
 
 ## The party 
 
