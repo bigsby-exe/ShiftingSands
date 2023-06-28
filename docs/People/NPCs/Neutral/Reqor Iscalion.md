@@ -1,1 +1,2 @@
 Reqor Iscalion's tomb was found in [[Tatu Burial Ground]] most likely a relative of [[Rithra Iscalion]] but we don't know
+Next to his tomb we found an unmarked grave that led us to [[Vault of Rithra Iscalion]]
