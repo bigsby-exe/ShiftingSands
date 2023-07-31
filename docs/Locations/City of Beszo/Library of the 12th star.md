@@ -6,7 +6,7 @@ Rifra tells us about a group of arch mages who have hidden keys for vaults
 
 ## People
 [[Inquery]] Teefling man - Receptionist intreague 43th day of the 6th moon
-[[Rithra Iscalion]]
+[[People/NPCs/Neutral/The Timeless Ones/Rithra Iscalion]]
 human woman - PA to Rifra
 
 ##### [[The Sunsnakes]] - 5 people in the waiting room

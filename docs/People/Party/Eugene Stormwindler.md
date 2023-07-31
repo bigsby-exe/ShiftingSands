@@ -3,6 +3,6 @@ Eugene Stormwindler (Slader Windler) is a professional aquatic swindler beast ma
 He is on a quest of some kind.
 Think he is raiding vaults #VaultHunters
 
-He was sent out by [[Rithra Iscalion]] and was part of a group called [[The Sea Snakes]]
+He was sent out by [[People/NPCs/Neutral/The Timeless Ones/Rithra Iscalion]] and was part of a group called [[The Sea Snakes]]
 
 He threw [[Annet]] at [[Roman Eagletree]]

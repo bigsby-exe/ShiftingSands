@@ -1,4 +1,4 @@
 Tiefling man with big ears.
 Name: Virtue 
 
-Works for [[Rithra Iscalion]] in the [[Library of the 12th star]]
+Works for [[People/NPCs/Neutral/The Timeless Ones/Rithra Iscalion]] in the [[Library of the 12th star]]
