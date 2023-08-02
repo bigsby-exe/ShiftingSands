@@ -44,3 +44,6 @@ In each of the querents we saw 4 objects
 4. orb of fire and magma 
 [[Rithra Iscalion]] piped up again and told us we where going to fight her
 it turns out it wasn't really her it was [[Rithra Iscalion Simulacrum]]
+
+After defeating the simulacrum we spoke with the [[Elementals]] that got fuckin huge the told us how the [[Obelisks]] was corrupt by [[The Dark Star]] that also corrupt [[Rithra Iscalion Simulacrum]] & then imprisoned the elementals and used there power against them.
+The lads decided that now they where free they would stop the sands shifting 
