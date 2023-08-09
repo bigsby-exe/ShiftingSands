@@ -14,7 +14,7 @@ Convince [[Ataish]] we will destroy his vault for him
 Go back and destroy the [[Vault of Rithra Iscalion]] frfr 
 
 # Step 5 
-Ecounter the [[Burbs]] give them the [[Obby Slice]] they betrayed us and summoned [[Black Dragon]]
+Ecounter the [[Burbs]] give them the [[Obby Slice]] they betrayed us and summoned [[Black Dragon]] and we killed him along with both the burbs (honestly fuck those fucking guys to hell)
 
 # Step 6
 Profit
