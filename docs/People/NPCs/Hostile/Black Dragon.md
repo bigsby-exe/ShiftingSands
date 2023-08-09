@@ -1,0 +1,1 @@
+The black dragon is a black dragon that few in after the [[Burbs]] summoned him at the [[Vault of Ataish]]

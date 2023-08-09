@@ -1,0 +1,1 @@
+The obby slice is the fake piece of the [[Obelisks]] from the [[Vault of Rithra Iscalion]]

@@ -47,3 +47,5 @@ it turns out it wasn't really her it was [[Rithra Iscalion Simulacrum]]
 
 After defeating the simulacrum we spoke with the [[Elementals]] that got fuckin huge the told us how the [[Obelisks]] was corrupt by [[The Dark Star]] that also corrupt [[Rithra Iscalion Simulacrum]] & then imprisoned the elementals and used there power against them.
 The lads decided that now they where free they would stop the sands shifting 
+
+The lads ([[Elementals]]) gave [[Miek]] the [[Sand Fury Twin Blades]]

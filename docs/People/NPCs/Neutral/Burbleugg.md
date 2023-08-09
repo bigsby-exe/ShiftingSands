@@ -1,0 +1,1 @@
+The Burbs where guarding the [[Vault of Ataish]] when we got there with the piece to complete [[The Plan]]
