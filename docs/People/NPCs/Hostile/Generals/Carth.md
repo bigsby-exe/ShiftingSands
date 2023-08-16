@@ -1,0 +1,1 @@
+Carth is the Beastmaster general who was a fighter in the city spending most of his time in the coliseum 
