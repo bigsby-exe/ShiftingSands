@@ -1,0 +1,1 @@
+Solis is a golden orb given to us by [[Ilzia]] that gives us more rest in a short space of time 

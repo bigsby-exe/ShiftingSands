@@ -1,0 +1,1 @@
+Ilzia is the wife of [[Karkera]] created by [[Helios]] found by us in the [[Vault of Ataish]]
